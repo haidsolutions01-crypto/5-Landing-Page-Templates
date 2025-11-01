@@ -58,7 +58,7 @@ Freelancers, agencies, and developers who want **ready-made, animated landing pa
 **Haid Solutions** — Crafting Digital Experiences with Precision and Style  
 
 🌐 **Website:** [https://haidsolutions.netlify.app](https://haidsolutions.netlify.app)  
-🔗 **Live Preview:** [https://your-preview-link.com](https://your-preview-link.com)  
+🔗 **Live Preview:** [https://your-preview-link.com](https://youtu.be/Mn9_aO3cPH8)  
 
 ---
 
